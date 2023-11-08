@@ -34,9 +34,9 @@ We believe that working together is the key to achieving our goals. If you're in
 
 You can stay updated with our work and initiatives by following us on our website and social media platforms:
 
-- [Official Website](https://www.agrivision4u.in)
-- [Twitter](https://twitter.com/Agrivision4U)
-- [Facebook](https://www.facebook.com/Agrivision4U)
-- [LinkedIn](https://www.linkedin.com/company/agrivision4u)
+- [Official Website](https://agrivision4u.com/)
+- [Youtube](https://www.youtube.com/@AgriVision4U)
+- [LinkedIn](https://www.linkedin.com/company/agrivision4u-official/)
+- [Instagram](https://www.instagram.com/agrivision4u__/)
 
 Thank you for your interest in Agrivision4U and our mission to support Indian agriculture and education. Together, we can make a positive impact in these vital fields.
